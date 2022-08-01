@@ -1,4 +1,6 @@
-### Hi there 👋
+### Hi there!! I'm SanyuD ✌️💖
+
+![anime-hi](https://user-images.githubusercontent.com/57134307/182208801-48923c21-756c-4cac-b97a-ab8e81ea184e.gif)
 
 <!--
 **sanyud24/sanyud24** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
