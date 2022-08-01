@@ -2,6 +2,9 @@
 
 ![anime-hi](https://user-images.githubusercontent.com/57134307/182208801-48923c21-756c-4cac-b97a-ab8e81ea184e.gif)
 
+
+![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=sanyud24&show_icons=true&theme=radical)
+
 <!--
 **sanyud24/sanyud24** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
