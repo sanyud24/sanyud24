@@ -1,5 +1,5 @@
 ###  ✥ Hi there!! I'm SanyuD ✌️💖
-## ....Artist from my soul, Otaku from my heart, and a striding Glitch in the universe...
+>### ***Artist From My Soul, Otaku From My Heart, And A Striding Glitch In The Universe...***
 
 ![anime-hi](https://user-images.githubusercontent.com/57134307/182208801-48923c21-756c-4cac-b97a-ab8e81ea184e.gif)
 
